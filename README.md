@@ -6,6 +6,5 @@
 ![act3_2](https://user-images.githubusercontent.com/101677236/202877911-7e02076e-8b7d-42cd-82e9-c3d4ed332a96.JPG)
 ![act3_1](https://user-images.githubusercontent.com/101677236/202877912-8888dac7-610e-4921-9064-c6dcf40ac5b2.JPG)
 ![act3](https://user-images.githubusercontent.com/101677236/202877914-f77e3c7d-2a2d-472c-a3b4-866a49fa8a73.JPG)
-8 : lahlou
-![act3_3](https://user-images.githubusercontent.com/101677236/207292620-32a6fb5c-8c16-4c4b-a974-5b6df14acee5.JPG)
+
 
